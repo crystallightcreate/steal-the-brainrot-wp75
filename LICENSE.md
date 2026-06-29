@@ -1,4 +1,4 @@
-# 
+# new Script for steal the brainrot base offers the most advanced steal the brainrot base Script, with invisibility and auto-collect. Perfect for
 
 
 
